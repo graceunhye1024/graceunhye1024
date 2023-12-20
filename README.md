@@ -1,5 +1,5 @@
-👋 Hi, I’m @graceunhye1024 </br>
-📫 Reach me @parkeunhye1024@gmail.com
+👋 Hi, I’m Grace, student at Michigan State University </br>
+📫 Reach me at parkeunhye1024@gmail.com
 
 <!---
 graceunhye1024/graceunhye1024 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
